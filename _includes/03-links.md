@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+You can check out more scenary images at [scenary images.com] and my linkedin profile at (https://www.linkedin.com/in/b-lavanya-529278229) 
